@@ -1,4 +1,4 @@
-## Yina Xia · 夏熠娜
+## Yina Xia · 夏艺娜
 
 MS student in **IGD** (*Interaction, Graphic, Design*) at **Institut Polytechnique de Paris / Télécom Paris**.
 BEng in **Artificial Intelligence**, **Tianjin University** — School of Intelligence and Computing.
